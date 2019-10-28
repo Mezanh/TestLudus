@@ -4,5 +4,3 @@ Petite modif importante
 Deuxieme modif
 Troisieme modif
 Gabriela 1
-Elodie 1
-ELODIE 2222222222222222
